@@ -1,5 +1,3 @@
-### Hi there 👋
-
 HENNADII HALANETS – SYSTEMS ENGINEER
 
 
